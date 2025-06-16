@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @karma0340
+- 👋 Hi, I’m Tyagi
 - 👀 I’m interested in ...coding,dancing and listening music and live life with joy
 - 🌱 I’m currently learning ...computer engineering
 - 💞️ I’m looking to collaborate on ...
